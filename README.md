@@ -1,1 +1,0 @@
-# gerenciadoresDe_tarefas
